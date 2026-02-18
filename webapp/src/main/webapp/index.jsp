@@ -1,2 +1,2 @@
-<h1> DEVOPS CLASS JUST STARTED FOR YEAR 2026. <h1>
-CLASS IS ONGOING right now. we are waiting right now..Hurry up
+<h1> DEVOPS 2 CLASS JUST STARTED FOR YEAR 2026. <h1>
+CLASS IS ONGOING right now. we are waiting right now..Hurry!
